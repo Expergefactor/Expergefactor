@@ -2,7 +2,7 @@
 - 👀 I’m interested in a lot.
 - 🌱 I’m currently learning how to be an adult.
 - 💞️ I’m looking to collaborate nothing in particular right now but open to the prospect.
-- 📫 How to reach me...If you know me, you can. If you don't, good luck.  
+- 📫 How to reach me... the.expergefactor@protonmail.com 
 - 😄 Pronouns: Just, no.
 - ⚡ Fun fact: It is a lot easier to put some thought into something and to be productive than it is to moan and to look for multiple ways of being unproductive.
 
