@@ -6,7 +6,7 @@
 - 😄 Pronouns: Just, no.
 - ⚡ Fun fact: It is a lot easier to put some thought into something and to be productive than it is to moan and to look for multiple ways of being unproductive.
 
-Some repositories are not publicly available. Those that are, are made  available for anyone to use and to improve without restriction. 
+Public respositories are made  available for anyone to use and to improve without restriction, please respect the licence conditions. 
 If you use any of my work, please give a bit back and let me know how it has been useful or improved. 
 I'd be really keen for any feedback. Good  or bad, I'm all for learning. 
 Thank you.
